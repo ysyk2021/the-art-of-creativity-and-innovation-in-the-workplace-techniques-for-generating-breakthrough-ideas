@@ -16,5 +16,4 @@ Finally, Chapter 9 looks at the relationship between creativity and innovation a
 
 Throughout the book, you'll find real-world examples and stories of successful creativity and innovation in the workplace, as well as practical exercises and tips for putting the strategies into practice. By the end of the book, you'll have a solid understanding of what it takes to harness the power of creativity and innovation in your workplace, and the tools you need to succeed in generating breakthrough ideas.
 
-
 MingHai Zheng is the founder of zhengpublishing.com and lives in Wuhan, China. His main publishing areas are business, management, self-help, computers and other emerging foreword fields.
