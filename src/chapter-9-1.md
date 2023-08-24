@@ -1,5 +1,3 @@
-Identifying Creativity and Innovation Technologies and Resources
-=========================================================================
 
 In this chapter, we explore various technologies and resources that can enhance creativity and innovation in the workplace. By identifying and utilizing these tools, organizations can unlock new possibilities and generate breakthrough ideas.
 

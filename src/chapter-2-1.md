@@ -1,5 +1,3 @@
-Overview of Creativity and Innovation
-==============================================
 
 In this chapter, we will explore the concepts of creativity and innovation in the workplace. We will discuss their importance, their relationship to each other, and how they contribute to generating breakthrough ideas. This chapter will provide an overview of the key principles and techniques that foster a culture of creativity and innovation within organizations.
 

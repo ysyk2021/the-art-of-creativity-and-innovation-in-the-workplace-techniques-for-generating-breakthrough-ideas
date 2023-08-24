@@ -1,5 +1,3 @@
-Developing Empathy and Compassion through Creative Thinking
-====================================================================
 
 In this chapter, we explore how creative thinking can help develop empathy and compassion in the workplace. By incorporating empathy and compassion into our creative process, we can drive innovation that truly understands and meets the needs of others.
 

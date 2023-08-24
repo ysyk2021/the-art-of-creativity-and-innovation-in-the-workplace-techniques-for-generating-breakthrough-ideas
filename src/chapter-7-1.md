@@ -1,5 +1,3 @@
-Identifying Common Sources of Resistance to Creativity and Innovation
-==============================================================================
 
 In this chapter, we explore the common sources of resistance to creativity and innovation in the workplace. By understanding these barriers, you can proactively address them and create an environment that fosters breakthrough ideas.
 

@@ -1,5 +1,3 @@
-Encouraging Proactive Creativity and Innovation Across the Organization
-================================================================================
 
 In this chapter, we explore strategies for encouraging proactive creativity and innovation across the organization. By fostering a culture that values and nurtures creative thinking, organizations can empower employees at all levels to generate breakthrough ideas and contribute to continuous improvement.
 

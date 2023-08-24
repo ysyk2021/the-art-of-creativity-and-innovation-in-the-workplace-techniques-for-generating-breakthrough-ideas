@@ -1,5 +1,3 @@
-Common Misconceptions about Creativity and Innovation
-==============================================================
 
 In this chapter, we debunk common misconceptions about creativity and innovation in the workplace. By understanding and challenging these misconceptions, organizations can foster a more accurate understanding of the creative process and unleash the full potential of their employees' innovative thinking.
 

@@ -1,5 +1,3 @@
-Assessing Your Personal Approach to Creative Thinking
-==============================================================
 
 In this chapter, we will explore the significance of assessing your personal approach to creative thinking. We will delve into various techniques and strategies that can help you understand your thinking style and enhance your creative capabilities.
 

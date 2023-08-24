@@ -1,5 +1,3 @@
-Techniques for Cultivating a Creative Mindset
-=======================================================================================
 
 Developing a creative mindset is crucial for generating breakthrough ideas and driving innovation in the workplace. In this chapter, we will explore various techniques that can help individuals cultivate a creative mindset.
 

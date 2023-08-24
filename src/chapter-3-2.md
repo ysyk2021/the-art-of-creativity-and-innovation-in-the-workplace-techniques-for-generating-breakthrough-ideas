@@ -1,5 +1,3 @@
-Utilizing Positive Self-Talk and Visualization
-========================================================================================
 
 Developing a creative mindset is key to unlocking the power of creativity and innovation in the workplace. In this chapter, we will explore how positive self-talk and visualization can help individuals develop a creative mindset that fosters innovation and breakthrough ideas.
 

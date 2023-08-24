@@ -1,5 +1,3 @@
-Chapter 7: Managing Resistance to Creativity and Innovation
-===========================================================
 
 In this chapter, we will explore strategies for managing resistance to creativity and innovation in the workplace. Specifically, we will discuss identifying common sources of resistance, developing strategies for overcoming resistance, addressing fear and uncertainty, and fostering a growth mindset.
 

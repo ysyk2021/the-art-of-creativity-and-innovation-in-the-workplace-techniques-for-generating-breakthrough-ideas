@@ -1,5 +1,3 @@
-Addressing Fear and Uncertainty
-============================================================================================
 
 Resistance to creativity and innovation can stem from fear and uncertainty in the workplace. Fear of failure, fear of change, and uncertainty about new initiatives can all contribute to resistance and make it difficult to generate breakthrough ideas. In this chapter, we will explore strategies for addressing fear and uncertainty and fostering a culture of creativity and innovation.
 

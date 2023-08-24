@@ -1,5 +1,3 @@
-Understanding the Principles of Effective Creative Thinking
-====================================================================
 
 In this chapter, we will delve into the principles that underpin effective creative thinking in the workplace. By understanding and applying these principles, individuals and teams can generate breakthrough ideas and drive innovation.
 

@@ -1,5 +1,3 @@
-Chapter 6: Developing Your Creative Skills
-==========================================
 
 In this chapter, we will explore strategies for developing your creative skills in the workplace. Specifically, we will discuss understanding the principles of effective creative thinking, developing strategies for generating breakthrough ideas, utilizing feedback and coaching, and fostering continuous learning and improvement.
 

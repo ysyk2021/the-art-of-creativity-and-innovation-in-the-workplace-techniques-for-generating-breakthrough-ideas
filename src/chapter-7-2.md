@@ -1,5 +1,3 @@
-Developing Strategies for Overcoming Resistance
-========================================================
 
 In this chapter, we explore strategies for overcoming resistance to creativity and innovation in the workplace. By understanding common sources of resistance and implementing effective techniques, we can create an environment that embraces new ideas and generates breakthrough innovations.
 

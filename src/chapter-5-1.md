@@ -1,5 +1,3 @@
-Identifying Opportunities for Creative Thinking in the Workplace
-=========================================================================
 
 In this chapter, we explore techniques for identifying opportunities for creative thinking in the workplace. By cultivating a mindset that actively seeks out possibilities and encourages innovative ideas, organizations can unlock their creative potential and generate breakthrough innovations.
 

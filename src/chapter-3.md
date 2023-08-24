@@ -1,5 +1,3 @@
-Chapter 3: Developing a Creative Mindset
-========================================
 
 In order to generate breakthrough ideas in the workplace, it is essential to develop a creative mindset. In this chapter, we will explore some techniques for cultivating a creative mindset, such as utilizing positive self-talk and visualization, setting realistic goals and objectives, and developing empathy and compassion through creative thinking.
 

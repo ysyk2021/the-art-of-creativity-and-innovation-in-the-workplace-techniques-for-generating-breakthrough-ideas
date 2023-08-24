@@ -1,5 +1,3 @@
-Overcoming Barriers to Creative Thinking
-=================================================
 
 In this chapter, we will explore the various barriers that hinder creative thinking and provide strategies to overcome them. Identifying and addressing these obstacles is crucial for fostering a culture of innovation in the workplace. Let's delve into some common barriers and effective techniques to overcome them.
 

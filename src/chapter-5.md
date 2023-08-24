@@ -1,5 +1,3 @@
-Chapter 5: Maximizing Your Creative Skills
-==========================================
 
 In this chapter, we will explore how to maximize your creative skills in the workplace. From identifying opportunities for creative thinking to fostering a culture of innovation, we will discuss a range of strategies for unlocking your creative potential.
 

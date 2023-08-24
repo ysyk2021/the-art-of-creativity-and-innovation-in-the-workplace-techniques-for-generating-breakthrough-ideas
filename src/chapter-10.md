@@ -1,5 +1,3 @@
-Chapter 10: Measuring Results and Learning from Experience
-==========================================================
 
 In this chapter, we'll explore the importance of measuring results and learning from experience in the context of creativity and innovation in the workplace. We'll discuss how organizations can track progress, reflect on their experiences, and continuously learn and improve.
 

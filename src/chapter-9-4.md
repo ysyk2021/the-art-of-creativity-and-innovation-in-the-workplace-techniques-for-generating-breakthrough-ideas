@@ -1,5 +1,3 @@
-Avoiding Information Overload
-======================================
 
 In this chapter, we explore strategies for avoiding information overload in the workplace. In today's fast-paced and data-driven world, it is crucial to manage the influx of information effectively to foster creativity and innovation.
 

@@ -1,5 +1,3 @@
-Chapter 8: Creating a Culture of Creativity and Innovation
-==========================================================
 
 In this chapter, we will explore how to create a culture of creativity and innovation in the workplace. From encouraging proactive creativity and innovation to celebrating achievements, we will discuss a range of strategies for fostering a supportive environment that empowers employees to generate breakthrough ideas.
 

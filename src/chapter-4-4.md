@@ -1,5 +1,3 @@
-Addressing Limiting Beliefs
-====================================
 
 In this chapter, we dive into the crucial topic of addressing limiting beliefs and explore strategies to overcome them. By identifying and challenging these beliefs, you can unlock your creative potential and generate breakthrough ideas.
 

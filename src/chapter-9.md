@@ -1,5 +1,3 @@
-Chapter 9: Leveraging Technology for Creativity and Innovation
-==============================================================
 
 Technology can be a powerful tool for creativity and innovation in the workplace. In this chapter, we will explore how to identify creativity and innovation technologies and resources, how to use technology to enhance your creative thinking experience, fostering accessibility and inclusivity, and avoiding information overload.
 

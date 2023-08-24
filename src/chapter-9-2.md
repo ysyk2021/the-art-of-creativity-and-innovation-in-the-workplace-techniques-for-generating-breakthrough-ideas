@@ -1,5 +1,3 @@
-Using Technology to Enhance Your Creative Thinking Experience
-======================================================================
 
 In this chapter, we explore how technology can be utilized to enhance your creative thinking experience in the workplace. By leveraging the power of technology, you can unlock new perspectives, boost ideation, and generate breakthrough ideas.
 

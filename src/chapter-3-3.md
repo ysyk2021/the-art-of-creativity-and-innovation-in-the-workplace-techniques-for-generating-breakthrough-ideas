@@ -1,5 +1,3 @@
-Setting Realistic Goals and Objectives
-===============================================
 
 In this chapter, we explore the importance of setting realistic goals and objectives in fostering creativity and innovation in the workplace. By establishing clear and attainable targets, organizations can channel their creative efforts effectively and drive breakthrough ideas.
 

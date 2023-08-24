@@ -1,5 +1,3 @@
-Recognizing How Creativity and Innovation Contribute to Success
-========================================================================
 
 In this chapter, we will explore how creativity and innovation are key contributors to success in the workplace. By understanding their importance and the value they bring to individuals and organizations, we can harness their power for achieving breakthrough results.
 

@@ -1,5 +1,3 @@
-Tracking Progress and Measuring Results
-===================================================================================================
 
 In order to drive progress and build a culture of creativity and innovation in the workplace, it is essential to track progress and measure results. In this chapter, we will explore some of the ways in which organizations can effectively measure the outcomes of their creativity and innovation initiatives and learn from their experiences to drive continuous improvement.
 

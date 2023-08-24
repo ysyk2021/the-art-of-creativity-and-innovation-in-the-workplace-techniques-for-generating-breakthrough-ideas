@@ -1,5 +1,3 @@
-Chapter 4: Understanding the Power of Creativity and Innovation
-===============================================================
 
 In this chapter, we will explore the power of creativity and innovation in the workplace. We will discuss the benefits of focusing on creativity and innovation, the impact of these qualities on individuals and organizations, and strategies for addressing limiting beliefs that can hinder creative thinking.
 

@@ -1,5 +1,3 @@
-Fostering a Growth Mindset
-=======================================================================================
 
 Resistance to creativity and innovation can be a significant barrier in the workplace. Whether it is due to fear of change, lack of resources, or entrenched organizational culture, managing resistance is critical for achieving success with creative and innovative initiatives. In this chapter, we will explore the power of a growth mindset in managing resistance and fostering creativity and innovation.
 

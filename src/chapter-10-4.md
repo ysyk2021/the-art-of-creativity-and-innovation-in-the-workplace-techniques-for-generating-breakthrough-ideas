@@ -1,5 +1,3 @@
-Adapting to Changes in the Workplace
-================================================================================================
 
 In this chapter, we will explore the importance of measuring results and learning from experience when implementing strategies for creativity and innovation in the workplace. We will also discuss how organizations can adapt to changes in the workplace to maintain a culture of creativity and innovation.
 

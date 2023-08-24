@@ -1,5 +1,3 @@
-Chapter 2: Defining Creativity and Innovation
-=============================================
 
 Overview of Creativity and Innovation
 -------------------------------------

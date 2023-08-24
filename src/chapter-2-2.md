@@ -1,5 +1,3 @@
-Understanding the Science behind Creativity and Innovation
-===================================================================
 
 In this chapter, we will delve into the scientific aspects of creativity and innovation. We will explore the cognitive processes, neurological mechanisms, and psychological factors that contribute to these phenomena. By understanding the science behind creativity and innovation, we can gain valuable insights into how to enhance and harness these abilities in the workplace.
 
